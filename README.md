@@ -27,3 +27,12 @@
 ![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/ae819cea-1b4a-4467-8d24-f3f6880e846a)
 ![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/c6a88485-8a9b-4807-a259-cb7c1b5d511e)
 
+new work 
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/ebfd36dc-076a-4271-8e4e-75cd2c00d0a1)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/9f47cd1a-a0f0-4840-9244-711557768ab2)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/3fc6cc7e-07f0-4b9f-9389-37f4bae82d43)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/d5195b80-2291-43d2-be82-ad1616c29743)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/aec2f1fc-f21d-4d36-bbb5-332739a8768b)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/62ee250c-4555-4cc1-8c6e-5dcef0dbeea5)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/49a3f714-2b68-4a5b-8486-3e57260bcc78)
+
