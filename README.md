@@ -35,4 +35,6 @@ new work
 ![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/aec2f1fc-f21d-4d36-bbb5-332739a8768b)
 ![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/62ee250c-4555-4cc1-8c6e-5dcef0dbeea5)
 ![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/49a3f714-2b68-4a5b-8486-3e57260bcc78)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/26e9fcc7-e65a-4b1c-a81d-cf4416ee4eb7)
+![image](https://github.com/Minhaz000555/SQL-work-/assets/128938912/f38ab3d1-d121-4d0d-828a-30ab24421a91)
 
